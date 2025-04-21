@@ -1,3 +1,4 @@
+![firsthellcard](first_hellcard.gif)
 ![swappy-20250314_184039](https://github.com/user-attachments/assets/abb66634-bd28-4337-88c8-20c1038249eb)
 ![20250321_23h43m44s_grim](https://github.com/user-attachments/assets/865ef3aa-0e7f-4687-bf3b-0c9da02dba60)
 ![20250325_19h10m13s_grim](https://github.com/user-attachments/assets/8997b747-4abb-4a6e-9654-7b06031a582c)
