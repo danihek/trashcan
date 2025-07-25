@@ -1,6 +1,9 @@
 THIS IS FOR REDDIT - https://avatars.githubusercontent.com/u/64467514?v=4
 ![image](https://avatars.githubusercontent.com/u/64467514?v=4)
 
+
+<img width="1920" height="1080" alt="image" src="https://github.com/user-attachments/assets/2ec693df-dab3-484e-b477-baca80b0cc98" />
+
 ![image](https://github.com/user-attachments/assets/4d49dcdf-8648-49ed-ad13-258d01cecf56)
 ![image](https://github.com/user-attachments/assets/15b38306-10ec-446e-89e1-e19887f029d4)
 <img width="2560" height="1440" alt="image" src="https://github.com/user-attachments/assets/f61c67e7-f0b6-4051-8464-e086d712ee47" />
